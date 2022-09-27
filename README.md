@@ -1,2 +1,0 @@
-# actividades_desarrollo_EnriqueKattz
-d
